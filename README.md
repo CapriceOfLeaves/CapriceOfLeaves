@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="https://postimg.cc/PPRJxh2D"
+    <img width="600" src="https://i.postimg.cc/KjfZjxYY/ezgif-4-b037fe0998.gif"
         . . . 
 <p align="center">
 </br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
