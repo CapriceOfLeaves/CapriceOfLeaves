@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="600" src="[https://i.postimg.cc/5yP2QX3j/tumblr-050b8e492b18b20327e9a70b3f2500f7-ebec46d8-540.gif](https://64.media.tumblr.com/910398423fbac416dd5d3735dc1afcad/37a32b672ed22f60-4c/s540x810/823ce41573b43beeda16b246e692d00578a53f68.gifv)"
+    <img width="600" src="https://i.postimg.cc/5yP2QX3j/tumblr-050b8e492b18b20327e9a70b3f2500f7-ebec46d8-540.gif](https://64.media.tumblr.com/910398423fbac416dd5d3735dc1afcad/37a32b672ed22f60-4c/s540x810/823ce41573b43beeda16b246e692d00578a53f68.gifv"
         . . . 
 <p align="center">
 </br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
