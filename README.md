@@ -12,5 +12,5 @@
     <br><b>About me :3 </b>
  <br> I'm just a silly person who has 10 million interests. <br>I'm very friendly! Don't be afraid to talk to me :3 <b> My patreon will have WAY more info abt me :3 </b>
 <p align="center">
-    <br><b>DNI:</b>
+     <br><b>DNI:</b>
  <br>Basic DNI, Proshippers, Roleplaying(I do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b>, minors. :Thumbs up:
