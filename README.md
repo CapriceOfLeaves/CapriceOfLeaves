@@ -1,6 +1,8 @@
 <p align="center">
-    <img width="600" src="https://pbs.twimg.com/media/FwfSCEFaYAMt2C-?format=jpg&name=4096x4096"
+    <img width="600" src="https://pbs.twimg.com/media/FwfSCEFaYAMt2C-?format=jpg&name=4096x4096">
+       me and my dad!
         . . . 
+
 <p align="center">
 </br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
 <br><b>Whisper to interact </b> I'm always off tab 
