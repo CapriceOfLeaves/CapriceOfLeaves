@@ -1,6 +1,7 @@
 <p align="center">
     <img width="600" src="https://pbs.twimg.com/media/FwfSCEFaYAMt2C-?format=jpg&name=4096x4096">
-       me and my dad!
+<p align="center">      
+    me and my dad!
         . . . 
 
 <p align="center">
