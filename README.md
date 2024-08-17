@@ -3,7 +3,6 @@
 <p align="center">      
     me and my dad!
         . . . 
-
 <p align="center">
 </br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
 <br><b>Whisper to interact </b> I'm always off tab 
