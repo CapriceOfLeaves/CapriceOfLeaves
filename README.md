@@ -5,7 +5,7 @@
         . . . 
 
 <p align="center">
-</br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
+</br>Hi :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
 <br><b>Whisper to interact </b> I'm always off tab 
 <br><b>Interests:</b> <i>Adamil</i> + more in my <a href=https://rentry.co/capriceofleaves/>rentry :3</a>
 <p align="center">
