@@ -5,7 +5,7 @@
         . . . 
 
 <p align="center">
-</br>Hi :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
+</br>Hi im Clover :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>Whisper to interact </b> I'm always off tab 
 <br><b>Interests:</b> <i>Adamil</i> + more in my <a href=https://sprouthicket.straw.page//>strawpage :3</a>
 <p align="center">
