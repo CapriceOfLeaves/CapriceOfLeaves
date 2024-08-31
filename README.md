@@ -4,7 +4,7 @@
     me and my dad!
         . . . 
 <p align="center">
-</br>hi im Clover :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
+</br>hi im clover :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to interact </b> i'm always off tab 
 <br><b>interests:</b> <i>adamil</i> + more in my <a href=https://sprouthicket.straw.page/>strawpage :3</a>
 <p align="center">
