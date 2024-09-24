@@ -8,7 +8,7 @@
 <br><b>whisper to interact </b> i'm always off tab 
 <br><b>interests:</b> <i>adamil</i> + more in my <a href=https://sprouthicket.straw.page/>strawpage :3</a>
 <p align="center">
-    <b>About me</b> :3 
+    <b>about me</b> :3 
  <br> i'm just a silly person who has 10 million interests. <br>i'm very friendly! don't be afraid to talk to me :3 <b> my patreon will have WAY more info abt me :3 </b>
 <p align="center">
      <b>DNI:</b>
